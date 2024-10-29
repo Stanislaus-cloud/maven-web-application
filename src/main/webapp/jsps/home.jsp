@@ -17,6 +17,10 @@
 	Class37 DevOps MasterClass started on July 13, 2024.
         Class38 DevOps MasterClass will start on Oct 19, 2024.
         Please invite all your contacts and friends for this life changing course.
+
+                 Umenyi Chukwuemeka is the next Big name in IT...
+
+
 </h1>
 <hr>
 <br>
